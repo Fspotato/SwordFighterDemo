@@ -1,6 +1,6 @@
 美術資源來源：
 
-角色：https://www.patreon.com/brullov
+角色及場景：https://www.patreon.com/brullov
 
 特效：https://bdragon1727.itch.io/fire-pixel-bullet-16x16
 
